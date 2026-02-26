@@ -1,4 +1,4 @@
-### ${\textsf{\color{#FF7094} "This is the price we pay for love" }}$
+### ${\textsf{\color{#FF7094} " This is the price we pay for love, " }}$
 
 
 [![spotify-github-profile](https://spotify-github-profile.kittinanx.com/api/view?uid=31ng4jvydnh2i3osadgfjmrjit2u&cover_image=true&theme=novatorem&show_offline=true&background_color=121212&interchange=false&profanity=false&bar_color=000000&bar_color_cover=false)](https://github.com/kittinan/spotify-github-profile)
