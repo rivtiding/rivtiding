@@ -21,8 +21,6 @@ i have social anxiety and am fairly awkward until i warm up, i prefer to just si
 
 usually offtab w2i unless were friends
 
-im a hellenic polytheist ^_^
-
 no heavy inspo most of my skins are designs i made (excluding the etm ones designs belong to pimpichc)
 
 INTEREST : 3d modeling , rain world, phighting , epic the musical , warrior cats, limbus company , shelter 2 , dave&bambi , bad things , sfawtde , aregect, wofquest or yellowstone wolves , dont starve , regretevator/meeleniacs , hollow knight , cattails , bee swarm , nitw , cos , ecos la brea , centaur world , hamilton , slendytubbies , httyd , jumalanpelko 
