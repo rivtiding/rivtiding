@@ -16,7 +16,7 @@ she/her pref but i dont really mind
 
 im homeschooled so im on ponytown 50% of the time
 
-C+H heavily enc even if im with friends,, i luv cuddling
+C+H heavily enc even if im with friends,, i luv cuddling but i probally wont int first if ur with someone else already
 
 i have social anxiety and am fairly awkward until i warm up, i prefer to just sit around but i dont mind talking
 
