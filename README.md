@@ -13,6 +13,8 @@ she/her pref but i dont really mind
 
 15 , december 19
 
+hellenic polytheist
+
 im homeschooled so im on ponytown 50% of the time
 
 C+H heavily enc even if im with friends,, i luv cuddling
