@@ -13,6 +13,7 @@ she/her pref but i dont really mind
 
 15 , december 19
 
+Hellenistic Polytheist
 
 im homeschooled so im on ponytown 50% of the time
 
