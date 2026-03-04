@@ -26,7 +26,7 @@ all my oomfs are very dear to me,, esp the ones pinned on my friends list <3
 
 no heavy inspo most of my skins are designs i made (excluding the etm ones designs belong to pimpichc & gigi) 
 
-INTEREST : 3d modeling , rain world, phighting , epic the musical , warrior cats, limbus company , shelter 2 , dave&bambi , bad things , sfawtde , aregect, wofquest or yellowstone wolves , dont starve , regretevator/meeleniacs , hollow knight , cattails , bee swarm , nitw , cos , ecos la brea , centaur world , hamilton , slendytubbies , httyd , jumalanpelko 
+INTEREST : 3d modeling , rain world, phighting , greek mythology , epic the musical , warrior cats, limbus company , shelter 2 , dave&bambi , bad things , sfawtde , aregect, wofquest or yellowstone wolves , dont starve , regretevator/meeleniacs , hollow knight , cattails , bee swarm , nitw , cos , ecos la brea , centaur world , hamilton , slendytubbies , httyd , jumalanpelko 
 
 DNI : basic dni criteria , people who use pansears art , anti otherkin , shurishot/swordkit shippers, sharpwolf shippers (epic sharpwolf specifically, odessey sharpwolf idgaf)
 
