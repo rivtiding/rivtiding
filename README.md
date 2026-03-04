@@ -24,7 +24,7 @@ usually offtab w2i unless were friends
 
 all my oomfs are very dear to me,, esp the ones pinned on my friends list <3
 
-no heavy inspo most of my skins are designs i made (excluding the etm ones designs belong to pimpichc)
+no heavy inspo most of my skins are designs i made (excluding the etm ones designs belong to pimpichc & gigi) 
 
 INTEREST : 3d modeling , rain world, phighting , epic the musical , warrior cats, limbus company , shelter 2 , dave&bambi , bad things , sfawtde , aregect, wofquest or yellowstone wolves , dont starve , regretevator/meeleniacs , hollow knight , cattails , bee swarm , nitw , cos , ecos la brea , centaur world , hamilton , slendytubbies , httyd , jumalanpelko 
 
