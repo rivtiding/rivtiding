@@ -1,19 +1,23 @@
-### ${\textsf{\color{#FF7094} " This is the price we pay for love, " }}$
 
 
-[![spotify-github-profile](https://spotify-github-profile.kittinanx.com/api/view?uid=31ng4jvydnh2i3osadgfjmrjit2u&cover_image=true&theme=novatorem&show_offline=true&background_color=121212&interchange=false&profanity=false&bar_color=000000&bar_color_cover=false)](https://github.com/kittinan/spotify-github-profile)
+### ${\textsf{\color{#376fa5} " Consider this as my goodbye, " }}$
+
+<img width="800" height="400" alt="Untitled1238_20260304180802" src="https://github.com/user-attachments/assets/516bea39-0740-4e16-b843-8dd125533eee" />
+
+
+
+
+___
+
 
 
 ![Profile view counter](https://komarev.com/ghpvc/?username=your-github-username)
 
-
 hi im nova
 
-she/her pref but i dont really mind
+she/her strictly
 
 15 , december 19
-
-Hellenistic Polytheist
 
 im homeschooled so im on ponytown 50% of the time
 
@@ -25,10 +29,27 @@ usually offtab w2i unless were friends
 
 all my oomfs are very dear to me,, esp the ones pinned on my friends list <3
 
-no heavy inspo most of my skins are designs i made (excluding the etm ones designs belong to pimpichc & gigi) 
 
-INTEREST : 3d modeling , rain world, phighting , greek mythology , epic the musical , warrior cats, limbus company , shelter 2 , dave&bambi , bad things , sfawtde , aregect, wofquest or yellowstone wolves , dont starve , regretevator/meeleniacs , hollow knight , cattails , bee swarm , nitw , cos , ecos la brea , centaur world , hamilton , slendytubbies , httyd , jumalanpelko 
+___
 
-DNI : basic dni criteria , people who use pansears art , proship/darkship , anti otherkin , shurishot/swordkit shippers, sharpwolf shippers (epic sharpwolf specifically, odessey sharpwolf idgaf)
+### ${\textsf{\color{#376fa5}  INTEREST }}$
 
-lostlace on discord for contact
+ 3d modeling , rain world , phighting , greek mythology , epic the musical , warrior cats, limbus company , shelter 2 , dave&bambi , bad things , sfawtde , aregect, wofquest or yellowstone wolves , dont starve , regretevator/meeleniacs , hollow knight , cattails , bee swarm , nitw , cos , ecos la brea , centaur world , hamilton , slendytubbies , httyd , jumalanpelko 
+
+### ${\textsf{\color{#376fa5}  DNI }}$
+basic dni criteria , people who use pansears art , anti otherkin , proship/darkship , shurishot/swordkit shippers 
+
+
+### ${\textsf{\color{#376fa5}  SOCIALS }}$
+rivtiding on rblx
+
+lostlace on discord
+
+fivepebbless on tiktok
+___
+
+[![spotify-github-profile](https://spotify-github-profile.kittinanx.com/api/view?uid=31ng4jvydnh2i3osadgfjmrjit2u&cover_image=true&theme=novatorem&show_offline=true&background_color=121212&interchange=false&profanity=false&bar_color=000000&bar_color_cover=false)](https://github.com/kittinan/spotify-github-profile)
+
+___
+
+art here and on ata belongs to pimpichc. designs for my etm skins belong to pimpiichc and gigi
