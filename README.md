@@ -24,7 +24,9 @@ im homeschooled so im on ponytown 50% of the time
 
 C+H heavily enc even if im with friends,, i luv cuddling but i probably wont int first if ur with someone else already
 
-i have social anxiety and am fairly awkward until i warm up, i prefer to just sit around but i dont mind talking
+i have social anxiety and am fairly awkward until i warm up and probably wont int first
+
+i prefer to just sit around but i dont mind talking
 
 usually offtab w2i unless were friends
 
