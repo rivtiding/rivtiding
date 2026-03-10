@@ -37,7 +37,7 @@ ___
 
 ### ${\textsf{\color{#376fa5}  INTEREST }}$
 
- 3d modeling , rain world , phighting , greek mythology , epic the musical , warrior cats, limbus company , shelter 2 , dave&bambi , bad things , sfawtde , aregect, wofquest or yellowstone wolves , dont starve , regretevator/meeleniacs , hollow knight , cattails , bee swarm , nitw , cos , ecos la brea , centaur world , hamilton , slendytubbies , httyd , jumalanpelko 
+ **3d modeling** , rain world , **phighting** , **greek mythology** , **epic the musical** , warrior cats, limbus company , shelter 2 , dave&bambi , bad things , sfawtde , aregect, wofquest or yellowstone wolves , dont starve , regretevator/meeleniacs , hollow knight , cattails , **bee swarm** , nitw , cos , ecos la brea , centaur world , hamilton , slendytubbies , httyd , jumalanpelko , **mewgenics**
 
 ### ${\textsf{\color{#376fa5}  DNI }}$
 basic dni criteria , people who use pansears art , anti otherkin , proship/darkship , shurishot/swordkit shippers 
