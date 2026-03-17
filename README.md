@@ -55,4 +55,4 @@ ___
 
 ___
 
-art here and on ata belongs to pimpichc. designs for my etm skins belong to pimpiichc and gigi
+art here and on ata belongs to pimpichc. designs for my etm skins belong to pimpiichc, starmybunny and gigi
