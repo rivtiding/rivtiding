@@ -37,7 +37,7 @@ ___
 
 ### ${\textsf{\color{#376fa5}  INTEREST }}$
 
- **3d modeling** , rain world , **phighting** , **greek mythology** , **penelope the musical** , **blood of zeus** , **epic the musical** , **hades game** , **basically anything greek mythology related** , warrior cats, limbus company , shelter 2 , dave&bambi , bad things , sfawtde , aregect, wofquest or yellowstone wolves , dont starve , regretevator/meeleniacs , hollow knight , cattails , **bee swarm** , nitw , cos , ecos la brea , centaur world , hamilton , slendytubbies , httyd , jumalanpelko , **mewgenics**
+ **3d modeling** , rain world , **phighting** , **greek mythology** , **the hounds of achilles** , **penelope the musical** , **blood of zeus** , **epic the musical** , **hades game** , **basically anything greek mythology related** , warrior cats, limbus company , shelter 2 , dave&bambi , bad things , sfawtde , aregect, wofquest or yellowstone wolves , dont starve , regretevator/meeleniacs , hollow knight , cattails , **bee swarm** , nitw , cos , ecos la brea , centaur world , hamilton , slendytubbies , httyd , jumalanpelko , **mewgenics**
 
 ### ${\textsf{\color{#376fa5}  DNI }}$
 basic dni criteria , people who use pansears art , anti otherkin , proship/darkship , shurishot/swordkit shippers , lore olympus fans
@@ -54,4 +54,4 @@ ___
 
 ___
 
-art here and on ata belongs to pimpichc. designs for my etm/gm skins belong to pimpiichc, tenoart,  starmybunny and gigi
+art here and on ata belongs to pimpichc. designs for my etm/thoa/gm skins belong to pimpiichc, tenoart,  starmybunny & theangelincarnate
