@@ -20,7 +20,7 @@ she/her strictly
 
 15 , december 19
 
-im homeschooled so im on ponytown 50% of the time
+im not on ponytown a lot anymore 
 
 C+H heavily enc even if im with friends,, i luv cuddling but i probably wont int first if ur with someone else already
 
