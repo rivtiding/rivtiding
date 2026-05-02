@@ -20,7 +20,9 @@ she/her strictly
 
 15 , december 19
 
-im not on ponytown a lot anymore 
+helpol
+
+im not on ponytown a lot anymore i usually only check in on friends 
 
 C+H heavily enc even if im with friends,, i luv cuddling but i probably wont int first if ur with someone else already
 
