@@ -14,7 +14,7 @@ ___
 
 ![Profile view counter](https://komarev.com/ghpvc/?username=your-github-username)
 
-hi im nova
+hi im lynn
 
 she/her strictly
 
