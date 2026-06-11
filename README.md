@@ -39,10 +39,10 @@ ___
 
 ### ${\textsf{\color{#376fa5}  INTEREST }}$
 
- **3d modeling** , rain world , **phighting** , **greek mythology** , **the hounds of achilles** , **penelope the musical** , **blood of zeus** , **epic the musical** , **hades game** , paris the musical **basically anything greek mythology related** , warrior cats, limbus company , shelter 2 , dave&bambi , bad things , sfawtde , aregect, wofquest or yellowstone wolves , dont starve , regretevator/meeleniacs , hollow knight , cattails , **bee swarm** , nitw , cos , ecos la brea , centaur world , hamilton , slendytubbies , httyd , jumalanpelko , mewgenics
+ **3d modeling** , **greek mythology** , **the hounds of achilles** , **penelope the musical** , **blood of zeus** , **epic the musical** , **hades game (1 & 2)** **percy jackson (books & tv series)** **the lightning theif musical** , paris the musical **basically anything greek mythology related** , warrior cats, limbus company , shelter 2 , dave&bambi , bad things , sfawtde , aregect, wofquest or yellowstone wolves , dont starve , regretevator/meeleniacs , hollow knight , cattails , bee swarm , nitw , cos , ecos la brea , centaur world , hamilton , slendytubbies , httyd , jumalanpelko , mewgenics , phighting, rain world
 
 ### ${\textsf{\color{#376fa5}  DNI }}$
-basic dni criteria , people who use pansears art , anti otherkin , proship/darkship , shurishot/swordkit shippers , lore olympus fans , zagchilles shippers , ships non-source supported incest (hermes x dionysus, hermes x apollo, ect) 
+basic dni criteria , lore olympus fans , zagchilles shippers , ships non-source supported incest (hermes x dionysus, hermes x apollo, ect) 
 
 ### ${\textsf{\color{#376fa5}  SOCIALS }}$
 rivtiding on rblx
@@ -56,4 +56,4 @@ ___
 
 ___
 
-art here and on ata belongs to pimpichc. designs for my etm/thoa/gm skins belong to pimpiichc, tenoart,  starmybunny & theangelincarnate
+art here and on ata belongs to pimpichc. designs for my etm/gm skins belong to pimpiichc, tenoart,  starmybunny
