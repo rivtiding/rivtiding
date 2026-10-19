@@ -26,7 +26,7 @@ ___
 
 vampires smp, pantheon smp, the flight smp, empires smp, hadestown, percy jackson, basically anything greek mythology related , warrior cats, limbus company , shelter 2, dont starve , regretevator/meeleniacs , hollow knight , cattails , bee swarm , nitw , cos , ecos la brea, hamilton , slendytubbies , httyd , jumalanpelko , mewgenics , phighting, rain world
 
-### ${\textsf{\color{#376fa5}  DNI }}$
+### ${\textsf{\color{#fc7ca9}  DNI }}$
 no dni i just block if ur a weirdo 
 
 ### ${\textsf{\color{#fc7ca9}  SOCIALS }}$
