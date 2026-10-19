@@ -1,12 +1,5 @@
 
 
-### ${\textsf{\color{#376fa5} " Consider this as my goodbye, " }}$
-
-
-
-
-<img width="800" height="400" alt="athena gitattributes" src="https://github.com/user-attachments/assets/1cdce7f2-0a56-49ef-bda2-208278a817d1" />
-
 
 ___
 
@@ -20,40 +13,31 @@ she/her strictly
 
 15 , december 19
 
-helpol
-
 im not on ponytown a lot anymore i usually only check in on friends 
 
 C+H heavily enc even if im with friends,, i luv cuddling but i probably wont int first if ur with someone else already
 
 i have social anxiety and am fairly awkward until i warm up and probably wont int first
 
-i prefer to just sit around but i dont mind talking
-
-usually offtab w2i unless were friends
-
-all my oomfs are very dear to me,, esp the ones pinned on my friends list <3
-
 
 ___
 
-### ${\textsf{\color{#376fa5}  INTEREST }}$
+### ${\textsf{\color{#fc7ca9}  INTEREST }}$
 
- **3d modeling** , **greek mythology** , **the hounds of achilles** , **penelope the musical** , **blood of zeus** , **epic the musical** , **hades game (1 & 2)** **percy jackson (books & tv series)** **the lightning theif musical** , paris the musical **basically anything greek mythology related** , warrior cats, limbus company , shelter 2 , dave&bambi , bad things , sfawtde , aregect, wofquest or yellowstone wolves , dont starve , regretevator/meeleniacs , hollow knight , cattails , bee swarm , nitw , cos , ecos la brea , centaur world , hamilton , slendytubbies , httyd , jumalanpelko , mewgenics , phighting, rain world
+vampires smp, pantheon smp, the flight smp, empires smp, hadestown, percy jackson, basically anything greek mythology related , warrior cats, limbus company , shelter 2, dont starve , regretevator/meeleniacs , hollow knight , cattails , bee swarm , nitw , cos , ecos la brea, hamilton , slendytubbies , httyd , jumalanpelko , mewgenics , phighting, rain world
 
 ### ${\textsf{\color{#376fa5}  DNI }}$
-basic dni criteria , lore olympus fans , zagchilles shippers , ships non-source supported incest (hermes x dionysus, hermes x apollo, ect) 
+no dni i just block if ur a weirdo 
 
-### ${\textsf{\color{#376fa5}  SOCIALS }}$
+### ${\textsf{\color{#fc7ca9}  SOCIALS }}$
 rivtiding on rblx
 
-lostlace on discord
+blueberrypesto on discord
 
 rivtide on tiktok
 ___
 
 [![spotify-github-profile](https://spotify-github-profile.kittinanx.com/api/view?uid=31ng4jvydnh2i3osadgfjmrjit2u&cover_image=true&theme=novatorem&show_offline=true&background_color=121212&interchange=false&profanity=false&bar_color=000000&bar_color_cover=false)](https://github.com/kittinan/spotify-github-profile)
 
-___
+__
 
-art here and on ata belongs to pimpichc. designs for my etm/gm skins belong to pimpiichc, tenoart,  starmybunny
