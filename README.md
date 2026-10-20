@@ -7,14 +7,14 @@ ___
 
 ![Profile view counter](https://komarev.com/ghpvc/?username=your-github-username)
 
-                  c+h always allowed
+c+h always allowed 
 
 
 ___
 
 ### ${\textsf{\color{#fc7ca9}  INTEREST }}$
 
-vampires smp, pantheon smp, the flight smp, empires smp, hadestown, percy jackson, basically anything greek mythology related , warrior cats, limbus company , shelter 2, dont starve , regretevator/meeleniacs , hollow knight , cattails , bee swarm , nitw , cos , ecos la brea, hamilton , slendytubbies , httyd , jumalanpelko , mewgenics , phighting, rain world, heathers, tlt musical
+vampires smp, pantheon smp, the flight smp, empires smp, hadestown, percy jackson, basically anything greek mythology related , warrior cats , shelter 2, cos , ecos la brea, hamilton , httyd , jumalanpelko , mewgenics , phighting, rain world, heathers, tlt musical
 
 ### ${\textsf{\color{#fc7ca9}  DNI }}$
 no dni i just block freely 
