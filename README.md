@@ -12,11 +12,11 @@ c+h always allowed
 
 ___
 
-### ${\textsf{\color{#fc7ca9}  INTEREST }}$
+### ${\textsf{\color{#fc7ca9} INTEREST }}$
 
 vampires smp, pantheon smp, the flight smp, empires smp, hadestown, percy jackson, basically anything greek mythology related , warrior cats , shelter 2, cos , ecos la brea, hamilton , httyd , jumalanpelko , mewgenics , phighting, rain world, heathers, tlt musical
 
-### ${\textsf{\color{#fc7ca9}  DNI }}$
+### ${\textsf{\color{#fc7ca9} DNI }}$
 no dni i just block freely 
 
 
