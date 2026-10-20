@@ -16,7 +16,7 @@ ___
 
 vampires smp, pantheon smp, the flight smp, empires smp, hadestown, percy jackson, basically anything greek mythology related , warrior cats , shelter 2, cos , ecos la brea, hamilton , httyd , jumalanpelko , mewgenics , phighting, rain world, heathers, tlt musical
 
-### ${\textsf{\color{#000000} DNI }}$
+### ${\textsf{\color{#44549c} DNI }}$
 no dni i just block freely 
 
 
